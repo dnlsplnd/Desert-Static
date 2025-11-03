@@ -1,6 +1,10 @@
 # Desert Static
 
-*Written and Performed by DNSK**Trip-hop / Desert Doom Spoken Word***BPM:** 55  **Key:** Dm  **Runtime:** 4:22
+**Written and Performed by DNSK**
+**Trip-hop / Desert Doom Spoken Word**
+**BPM:** 55  
+**Key:** Dm  
+**Runtime:** 4:22
 
 * * *
 
